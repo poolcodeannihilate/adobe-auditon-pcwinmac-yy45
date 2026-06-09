@@ -1,4 +1,4 @@
-# 
+# Advanced Adobe Audition presets for Mac OS | Best Adobe Audition presets for PC Windows. Featuring timeline-editing and multi-cam-editing — optimized for maximum performance on every platform.
 
 
 
